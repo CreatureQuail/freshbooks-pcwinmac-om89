@@ -1,4 +1,4 @@
-# 
+# Último FreshBooks preajustes para Mac OS | Avanzado FreshBooks preajustes para PC Windows. Con seguimiento de kilometraje y reconocimiento OCR — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
